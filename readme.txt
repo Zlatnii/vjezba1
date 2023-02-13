@@ -1,3 +1,3 @@
 Ivo Zlatunic
 
-Neki tekst po zelji 
+Neki tekst po zelji - dodano
